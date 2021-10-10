@@ -1,17 +1,33 @@
-Jadwal Pertandingan 10 Okt 2021.
+Jadwal Pertandingan 10-11 Okt 2021.
 
-Andorra vs Inggris
+Italia vs Belgia
+
+Kompetisi : Liga Negara UEFA
+
+Jam : 20:00 WIB
+
+Link streaming : http://id.spogoal.com/detail/2108686?type=soccer
+
+Spanyol vs Prancis
+
+Kompetisi : Liga Negara UEF
+
+Jam : 01:45 WIB
+
+Link streaming : http://id.spogoal.com/detail/2108685?type=soccer
+
+Kolombia vs Brazil
 
 Kompetisi : Kualifikasi Piala Dunia
 
-Jam : 01:45 WIB
+Jam : 04:00 WIB
 
-Link streaming : http://id.spogoal.com/detail/1988845?type=soccer
+Link streaming : http://id.spogoal.com/detail/1936417?type=soccer
 
-Portugal vs Qatar
+Argentina vs Uruguay
 
-Kompetisi : Uji Coba
+Kompetisi : Kualifikasi Piala Dunia
 
-Jam : 01:45 WIB
+Jam : 06:30 WIB
 
-Link streaming : http://id.spogoal.com/detail/2106748?type=soccer
+Link streaming : http://id.spogoal.com/detail/1936420?type=soccer
