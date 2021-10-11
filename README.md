@@ -4,17 +4,17 @@ PSG Pati vs Persijap
 
 Kompetisi : Liga 2. 
 
-Jam : 15:15 WIB
+Jam : 18:10 WIB
 
-Link streaming : 
+Link streaming : https://bit.ly/3HClVS
 
 Badak Lampung vs Dewa United
 
 Kompetisi : Liga 2. 
 
-Jam : 15:15 WIB
+Jam : 20:30 WIB
 
-Link streaming : 
+Link streaming : https://bit.ly/3HClVS
 
 Sriwijaya FC vs Semen Padang
 
@@ -22,7 +22,7 @@ Kompetisi : Liga 2.
 
 Jam : 18:15 WIB
 
-Link streaming : 
+Link streaming : https://bit.ly/3HClVS
 
 China Taipei vs Indonesia 
 
