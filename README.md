@@ -1,33 +1,49 @@
-Jadwal Pertandingan 10-11 Okt 2021.
+Jadwal Pertandingan 11-12 Okt 2021.
 
-Italia vs Belgia
+PSG Pati vs Persijap
 
-Kompetisi : Liga Negara UEFA
+Kompetisi : Liga 2. 
+
+Jam : 15:15 WIB
+
+Link streaming : 
+
+Badak Lampung vs Dewa United
+
+Kompetisi : Liga 2. 
+
+Jam : 15:15 WIB
+
+Link streaming : 
+
+Sriwijaya FC vs Semen Padang
+
+Kompetisi : Liga 2. 
+
+Jam : 18:15 WIB
+
+Link streaming : 
+
+China Taipei vs Indonesia 
+
+Kompetisi : Play Off Kualifikasi Piala Asia. 
 
 Jam : 20:00 WIB
 
-Link streaming : http://id.spogoal.com/detail/2108686?type=soccer
+Link streaming : http://id.spogoal.com/detail/2093486?type=soccer
 
-Spanyol vs Prancis
+Belanda vs Gibraltar
 
-Kompetisi : Liga Negara UEF
+Kompetisi : Kualifikasi Piala Dunia. 
 
 Jam : 01:45 WIB
 
-Link streaming : http://id.spogoal.com/detail/2108685?type=soccer
+Link streaming : http://id.spogoal.com/detail/1988789?type=soccer
 
-Kolombia vs Brazil
+Macedonia vs Jerman 
 
-Kompetisi : Kualifikasi Piala Dunia
+Kompetisi : Kualifikasi Piala Dunia. 
 
-Jam : 04:00 WIB
+Jam : 01:45 WIB
 
-Link streaming : http://id.spogoal.com/detail/1936417?type=soccer
-
-Argentina vs Uruguay
-
-Kompetisi : Kualifikasi Piala Dunia
-
-Jam : 06:30 WIB
-
-Link streaming : http://id.spogoal.com/detail/1936420?type=soccer
+Link streaming : http://id.spogoal.com/detail/1988879?type=soccer
