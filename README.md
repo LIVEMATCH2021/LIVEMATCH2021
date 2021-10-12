@@ -1,49 +1,31 @@
-Jadwal Pertandingan 11-12 Okt 2021.
+Jadwal Pertandingan 12-13 Okt 2021.
 
-PSG Pati vs Persijap
-
+Rans Cilegon vs Perserang
 Kompetisi : Liga 2. 
-
-Jam : 18:10 WIB
-
+Jam : 15:15 WIB
 Link streaming : https://bit.ly/3HClVS
 
-Badak Lampung vs Dewa United
-
+KS Tiga Naga vs PSPS Riau
 Kompetisi : Liga 2. 
-
-Jam : 20:30 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Sriwijaya FC vs Semen Padang
-
-Kompetisi : Liga 2. 
-
 Jam : 18:15 WIB
-
 Link streaming : https://bit.ly/3HClVS
 
-China Taipei vs Indonesia 
+PSIM Yogyakarta vs Persis Solo
+Kompetisi : Liga 2. 
+Jam : 18:30 WIB
+Link streaming : https://bit.ly/3HClVS
 
-Kompetisi : Play Off Kualifikasi Piala Asia. 
+Persiba Balikpapan vs PSBS Biak
+Kompetisi : Liga 2. 
+Jam : 20:30 WIB
+Link streaming : https://bit.ly/3HClVS 
 
-Jam : 20:00 WIB
-
-Link streaming : http://id.spogoal.com/detail/2093486?type=soccer
-
-Belanda vs Gibraltar
-
+Inggris vs Hungaria
 Kompetisi : Kualifikasi Piala Dunia. 
-
 Jam : 01:45 WIB
+Link streaming : http://id.spogoal.com/detail/1988849?type=soccer
 
-Link streaming : http://id.spogoal.com/detail/1988789?type=soccer
-
-Macedonia vs Jerman 
-
+Portugal vs Luksemburg
 Kompetisi : Kualifikasi Piala Dunia. 
-
 Jam : 01:45 WIB
-
-Link streaming : http://id.spogoal.com/detail/1988879?type=soccer
+Link streaming : http://id.spogoal.com/detail/1988651?type=soccer
