@@ -1,31 +1,21 @@
-Jadwal Pertandingan 12-13 Okt 2021.
+Jadwal Pertandingan 14-15 Okt 2021.
 
-Rans Cilegon vs Perserang
+Persewar Waropen vs Mitra Kukar
 Kompetisi : Liga 2. 
 Jam : 15:15 WIB
 Link streaming : https://bit.ly/3HClVS
 
-KS Tiga Naga vs PSPS Riau
+PSMS Medan vs Semen Padang
 Kompetisi : Liga 2. 
 Jam : 18:15 WIB
 Link streaming : https://bit.ly/3HClVS
 
-PSIM Yogyakarta vs Persis Solo
-Kompetisi : Liga 2. 
-Jam : 18:30 WIB
+Argentina vs Peru
+Kompetisi : Kualifikasi Piala Dunia. 
+Jam : 06:30 WIB
 Link streaming : https://bit.ly/3HClVS
 
-Persiba Balikpapan vs PSBS Biak
-Kompetisi : Liga 2. 
-Jam : 20:30 WIB
-Link streaming : https://bit.ly/3HClVS 
-
-Inggris vs Hungaria
+Brazil vs Uruguay
 Kompetisi : Kualifikasi Piala Dunia. 
-Jam : 01:45 WIB
-Link streaming : http://id.spogoal.com/detail/1988849?type=soccer
-
-Portugal vs Luksemburg
-Kompetisi : Kualifikasi Piala Dunia. 
-Jam : 01:45 WIB
-Link streaming : http://id.spogoal.com/detail/1988651?type=soccer
+Jam : 07:30 WIB
+Link streaming : https://bit.ly/3HClVS
