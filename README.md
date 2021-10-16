@@ -1,36 +1,51 @@
-Jadwal Pertandingan 15-16 Okt 2021.
+Jadwal Pertandingan 16-17 Okt 2021.
 
-PSIS Semarang vs Persik Kediri
+Persela Lamongan vs Madura United
 Kompetisi : BRI Liga 1. 
 Jam : 15:15 WIB
 Link streaming : https://bit.ly/3HClVS
 
-Persiba Balikpapan vs Sulut United
-Kompetisi : Liga 2. 
+Persita Tangerang vs Persiraja Banda Aceh
+Kompetisi : BRI Liga 1. 
 Jam : 15:15 WIB
 Link streaming : https://bit.ly/3HClVS
 
-PSPS Riau vs Sriwijaya FC
-Kompetisi : Liga 2. 
-Jam : 15:15 WIB
-Link streaming : https://bit.ly/3HClVS
-
-PSS Sleman vs PS Barito Putera
+Persipura Jayapura vs Persebaya
 Kompetisi : BRI Liga 1. 
 Jam : 18:15 WIB
 Link streaming : https://bit.ly/3HClVS
 
-Babel United vs Tiga Naga
-Kompetisi : Liga 2. 
-Jam : 18:15 WIB
+Watford vs Liverpool 
+Kompetisi : Premier League.
+Jam : 18:30 WIB
 Link streaming : https://bit.ly/3HClVS
 
-PSBS Biak vs Kalteng Putra
-Kompetisi : Liga 2. 
-Jam : 20:30 WIB
+Bhayangkara FC vs Persib Bandung
+Kompetisi : BRI Liga 1. 
+Jam : 20:45 WIB
 Link streaming : https://bit.ly/3HClVS
 
-PSG vs Angers SCO
-Kompetisi : Ligue 1. 
-Jam : 02:00 WIB
+Leicester City vs Manchester United
+Kompetisi : Premier League. 
+Jam : 21:00 WIB
+Link streaming : https://bit.ly/3HClVS
+
+Manchester City vs Burnley
+Kompetisi : Premier League. 
+Jam : 21:00 WIB
+Link streaming : https://bit.ly/3HClVS
+
+Lazio vs Internazionale 
+Kompetisi : Serie A. 
+Jam : 23:00 WIB
+Link streaming : https://bit.ly/3HClVS
+
+Brentford vs Chelsea
+Kompetisi : Premier League. 
+Jam : 23:30 WIB
+Link streaming : https://bit.ly/3HClVS
+
+AC Milan vs Verona
+Kompetisi : Serie A. 
+Jam : 01:45 WIB
 Link streaming : https://bit.ly/3HClVS
