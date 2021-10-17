@@ -1,78 +1,51 @@
-Jadwal Pertandingan 16-17 Okt 2021.
+Jadwal Pertandingan 17-18 Okt 2021.
 
-Persela Lamongan vs Madura United
-
+PSM Makassar vs Bali United
 Kompetisi : BRI Liga 1. 
-
 Jam : 15:15 WIB
-
 Link streaming : https://bit.ly/3HClVS
 
-Persita Tangerang vs Persiraja Banda Aceh
+Indonesia vs China
+Kompetisi : Thomas Cup. 
+Jam : 18:00 WIB
+Link streaming : https://bit.ly/39BXRN
 
+Persija Jakarta vs Arema FC
 Kompetisi : BRI Liga 1. 
-
-Jam : 15:15 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Persipura Jayapura vs Persebaya
-
-Kompetisi : BRI Liga 1. 
-
 Jam : 18:15 WIB
-
 Link streaming : https://bit.ly/3HClVS
 
-Watford vs Liverpool 
-
+Everton vs West Ham United
 Kompetisi : Premier League.
-
-Jam : 18:30 WIB
-
+Jam : 20:00 WIB
 Link streaming : https://bit.ly/3HClVS
 
-Bhayangkara FC vs Persib Bandung
-
+Persikabo 1973 vs Borneo FC
 Kompetisi : BRI Liga 1. 
-
-Jam : 20:45 WIB
-
+Jam : 20:30 WIB
 Link streaming : https://bit.ly/3HClVS
 
-Leicester City vs Manchester United
+Bayer Leverkusen vs Bayern München
+Kompetisi : BundesLiga. 
+Jam : 20:30 WIB
+Link streaming : https://bit.ly/3HClVS
 
+Newcastle United vs Tottenham Hotspur
 Kompetisi : Premier League. 
-
-Jam : 21:00 WIB
-
+Jam : 22:30 WIB
 Link streaming : https://bit.ly/3HClVS
 
-Manchester City vs Burnley
-
-Kompetisi : Premier League. 
-
-Jam : 21:00 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Lazio vs Internazionale 
-
+Napoli vs Torino
 Kompetisi : Serie A. 
-
 Jam : 23:00 WIB
-
 Link streaming : https://bit.ly/3HClVS
 
-Brentford vs Chelsea
-Kompetisi : Premier League. 
-Jam : 23:30 WIB
-Link streaming : https://bit.ly/3HClVS
-
-AC Milan vs Verona
-
+Juventus vs As Roma
 Kompetisi : Serie A. 
-
 Jam : 01:45 WIB
+Link streaming : https://bit.ly/3HClVS
 
+Barcelona vs Valencia
+Kompetisi : LaLiga. 
+Jam : 02:00 WIB
 Link streaming : https://bit.ly/3HClVS
