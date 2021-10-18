@@ -1,70 +1,38 @@
-Jadwal Pertandingan 17-18 Okt 2021.
+Jadwal Pertandingan 18-19 Okt 2021.
 
-PSM Makassar vs Bali United
+Perserang Serang vs Persekat
 
-Kompetisi : BRI Liga 1. 
+Kompetisi : Liga 2. 
 
 Jam : 15:15 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Indonesia vs China
+Persijap Jepara vs PSCS Cilacap
 
-Kompetisi : Thomas Cup. 
+Kompetisi : Liga 2. 
 
-Jam : 18:00 WIB
+Jam : 15:15 WIB
 
-Link streaming : https://bit.ly/39BXRN
+Link streaming : https://bit.ly/3HClVS
 
-Persija Jakarta vs Arema FC
+Persis Solo vs PS Hizbul Wathan
 
-Kompetisi : BRI Liga 1. 
+Kompetisi : Liga 2. 
 
 Jam : 18:15 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Everton vs West Ham United
+Dewa United vs PSKC Cimahi
 
-Kompetisi : Premier League.
-
-Jam : 20:00 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Persikabo 1973 vs Borneo FC
-
-Kompetisi : BRI Liga 1. 
+Kompetisi : Liga 2.
 
 Jam : 20:30 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Bayer Leverkusen vs Bayern München
-
-Kompetisi : BundesLiga. 
-
-Jam : 20:30 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Newcastle United vs Tottenham Hotspur
-
-Kompetisi : Premier League. 
-
-Jam : 22:30 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Napoli vs Torino
-
-Kompetisi : Serie A. 
-
-Jam : 23:00 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Juventus vs As Roma
+Venezia vs Fiorentina
 
 Kompetisi : Serie A. 
 
@@ -72,7 +40,15 @@ Jam : 01:45 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Barcelona vs Valencia
+Arsenal vs Crystal Palace
+
+Kompetisi : Premier League. 
+
+Jam : 02:00 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Espanyol vs Cadiz
 
 Kompetisi : LaLiga. 
 
