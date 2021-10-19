@@ -1,14 +1,6 @@
-Jadwal Pertandingan 18-19 Okt 2021.
+Jadwal Pertandingan 19-20 Okt 2021.
 
-Perserang Serang vs Persekat
-
-Kompetisi : Liga 2. 
-
-Jam : 15:15 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Persijap Jepara vs PSCS Cilacap
+PSG Pati vs PSIM Yogyakarta
 
 Kompetisi : Liga 2. 
 
@@ -16,7 +8,7 @@ Jam : 15:15 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Persis Solo vs PS Hizbul Wathan
+Rans Cilegon FC vs Badak Lampung FC
 
 Kompetisi : Liga 2. 
 
@@ -24,7 +16,7 @@ Jam : 18:15 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Dewa United vs PSKC Cimahi
+Mitra Kukar vs Kalteng Putra
 
 Kompetisi : Liga 2.
 
@@ -32,25 +24,65 @@ Jam : 20:30 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Venezia vs Fiorentina
+Beşiktaş vs Sporting CP
 
-Kompetisi : Serie A. 
+Kompetisi : Liga Champions Eropa. 
 
-Jam : 01:45 WIB
+Jam : 23:45 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Arsenal vs Crystal Palace
+Club brugge vs Manchester City
 
-Kompetisi : Premier League. 
+Kompetisi : Liga Champions Eropa. 
+
+Jam : 23:45 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Ajax vs Borussia Dortmund
+
+Kompetisi : Liga Champions Eropa. 
 
 Jam : 02:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Espanyol vs Cadiz
+Atlético Madrid vs Liverpool
 
-Kompetisi : LaLiga. 
+Kompetisi : Liga Champions Eropa. 
+
+Jam : 02:00 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+FC Porto vs AC Milan
+
+Kompetisi : Liga Champions Eropa. 
+
+Jam : 02:00 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Internazionale vs Sheriff
+
+Kompetisi : Liga Champions Eropa. 
+
+Jam : 02:00 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+PSG vs RB Leipzig
+
+Kompetisi : Liga Champions Eropa. 
+
+Jam : 02:00 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Shakhtar vs Real Madrid
+
+Kompetisi : Liga Champions Eropa. 
 
 Jam : 02:00 WIB
 
