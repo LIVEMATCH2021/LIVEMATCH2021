@@ -1,6 +1,6 @@
-Jadwal Pertandingan 19-20 Okt 2021.
+Jadwal Pertandingan 20-21 Okt 2021.
 
-PSG Pati vs PSIM Yogyakarta
+PSPS Riau vs PSMS Medan
 
 Kompetisi : Liga 2. 
 
@@ -8,7 +8,15 @@ Jam : 15:15 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Rans Cilegon FC vs Badak Lampung FC
+Sulut United vs PSBS Biak
+
+Kompetisi : Liga 2. 
+
+Jam : 15:15 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Semen Padang vs Muba United
 
 Kompetisi : Liga 2. 
 
@@ -16,7 +24,7 @@ Jam : 18:15 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Mitra Kukar vs Kalteng Putra
+Persewar Waropen vs Persiba Balikpapan
 
 Kompetisi : Liga 2.
 
@@ -24,7 +32,23 @@ Jam : 20:30 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Beşiktaş vs Sporting CP
+Barito Putera vs PSIS Semarang
+
+Kompetisi : BRI Liga 1.
+
+Jam : 20:30 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Spartak Moskow vs Leicester
+
+Kompetisi : Liga Eropa.
+
+Jam : 21:30 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Barcelona vs Dyn. Kiev
 
 Kompetisi : Liga Champions Eropa. 
 
@@ -32,7 +56,7 @@ Jam : 23:45 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Club brugge vs Manchester City
+Salzburg vs Wolfsburg
 
 Kompetisi : Liga Champions Eropa. 
 
@@ -40,7 +64,7 @@ Jam : 23:45 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Ajax vs Borussia Dortmund
+Benfica vs Bayern München
 
 Kompetisi : Liga Champions Eropa. 
 
@@ -48,7 +72,7 @@ Jam : 02:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Atlético Madrid vs Liverpool
+Chelsea vs Malmo FF
 
 Kompetisi : Liga Champions Eropa. 
 
@@ -56,7 +80,7 @@ Jam : 02:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-FC Porto vs AC Milan
+Lille vs Selvilla
 
 Kompetisi : Liga Champions Eropa. 
 
@@ -64,7 +88,7 @@ Jam : 02:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Internazionale vs Sheriff
+Manchester United vs Atalanta
 
 Kompetisi : Liga Champions Eropa. 
 
@@ -72,15 +96,7 @@ Jam : 02:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-PSG vs RB Leipzig
-
-Kompetisi : Liga Champions Eropa. 
-
-Jam : 02:00 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Shakhtar vs Real Madrid
+Zenit vs Juventus
 
 Kompetisi : Liga Champions Eropa. 
 
