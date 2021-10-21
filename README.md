@@ -1,38 +1,14 @@
-Jadwal Pertandingan 20-21 Okt 2021.
+Jadwal Pertandingan 21-22 Okt 2021.
 
-PSPS Riau vs PSMS Medan
+Persik Kediri vs Persipura Jayapura
 
-Kompetisi : Liga 2. 
-
-Jam : 15:15 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Sulut United vs PSBS Biak
-
-Kompetisi : Liga 2. 
-
-Jam : 15:15 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Semen Padang vs Muba United
-
-Kompetisi : Liga 2. 
+Kompetisi : BRI Liga 1. 
 
 Jam : 18:15 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Persewar Waropen vs Persiba Balikpapan
-
-Kompetisi : Liga 2.
-
-Jam : 20:30 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Barito Putera vs PSIS Semarang
+Persebaya vs Persela Lamongan
 
 Kompetisi : BRI Liga 1.
 
@@ -40,66 +16,73 @@ Jam : 20:30 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Spartak Moskow vs Leicester
+Vitesse vs Tottenham
 
-Kompetisi : Liga Eropa.
-
-Jam : 21:30 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Barcelona vs Dyn. Kiev
-
-Kompetisi : Liga Champions Eropa. 
+Kompetisi : Liga Konferensi Eropa. 
 
 Jam : 23:45 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Salzburg vs Wolfsburg
+Bodo/Glimt vs AS Roma
 
-Kompetisi : Liga Champions Eropa. 
+Kompetisi : Liga Konferensi Eropa. 
 
 Jam : 23:45 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Benfica vs Bayern München
+Betis vs Bayer Leverkusen
 
-Kompetisi : Liga Champions Eropa. 
+Kompetisi : Liga Konferensi Eropa. 
+
+Jam : 23:45 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Lazio vs Marseille
+
+Kompetisi : Liga Konferensi Eropa. 
+
+Jam : 23:45 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Eintracht Frankfurt vs Olympiakos Piraeus
+
+Kompetisi : Liga Konferensi Eropa. 
 
 Jam : 02:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Chelsea vs Malmo FF
+Lokomotiv Moskow vs Galatasaray
 
-Kompetisi : Liga Champions Eropa. 
-
-Jam : 02:00 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Lille vs Selvilla
-
-Kompetisi : Liga Champions Eropa. 
+Kompetisi : Liga Konferensi Eropa. 
 
 Jam : 02:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Manchester United vs Atalanta
+Napoli vs Legia
 
-Kompetisi : Liga Champions Eropa. 
+Kompetisi : Liga Konferensi Eropa. 
 
 Jam : 02:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Zenit vs Juventus
+PSV vs Monaco
 
-Kompetisi : Liga Champions Eropa. 
+Kompetisi : Liga Konferensi Eropa. 
 
+Jam : 02:00 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+West Ham vs Genk
+
+Kompetisi : Liga Konferensi Eropa. 
 Jam : 02:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
