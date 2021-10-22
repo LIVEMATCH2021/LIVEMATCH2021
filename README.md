@@ -1,88 +1,41 @@
-Jadwal Pertandingan 21-22 Okt 2021.
+Jadwal Pertandingan 22-23 Okt 2021.
 
-Persik Kediri vs Persipura Jayapura
+Persita vs Persikabo 1973
+
+Kompetisi : BRI Liga 1. 
+
+Jam : 15:15 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Persib Bandung vs PSS Sleman
 
 Kompetisi : BRI Liga 1. 
 
 Jam : 18:15 WIB
 
-Link streaming : https://bit.ly/3HClVS
+Link streaming : https://bit.ly/3HClVS 
 
-Persebaya vs Persela Lamongan
+Borneo vs PSM Makassar
 
 Kompetisi : BRI Liga 1.
 
-Jam : 20:30 WIB
+Jam : 20:45 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Vitesse vs Tottenham
+Madura United vs Persija Jakarta
 
-Kompetisi : Liga Konferensi Eropa. 
+Kompetisi : BRI Liga 1.
 
-Jam : 23:45 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Bodo/Glimt vs AS Roma
-
-Kompetisi : Liga Konferensi Eropa. 
-
-Jam : 23:45 WIB
+Jam : 20:45 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Betis vs Bayer Leverkusen
+Arsenal vs Aston Villa
 
-Kompetisi : Liga Konferensi Eropa. 
+Kompetisi : Premier League. 
 
-Jam : 23:45 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Lazio vs Marseille
-
-Kompetisi : Liga Konferensi Eropa. 
-
-Jam : 23:45 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Eintracht Frankfurt vs Olympiakos Piraeus
-
-Kompetisi : Liga Konferensi Eropa. 
-
-Jam : 02:00 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Lokomotiv Moskow vs Galatasaray
-
-Kompetisi : Liga Konferensi Eropa. 
-
-Jam : 02:00 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Napoli vs Legia
-
-Kompetisi : Liga Konferensi Eropa. 
-
-Jam : 02:00 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-PSV vs Monaco
-
-Kompetisi : Liga Konferensi Eropa. 
-
-Jam : 02:00 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-West Ham vs Genk
-
-Kompetisi : Liga Konferensi Eropa. 
 Jam : 02:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
