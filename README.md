@@ -1,40 +1,80 @@
-Jadwal Pertandingan 22-23 Okt 2021.
+Jadwal Pertandingan 23-24 Okt 2021.
 
-Persita vs Persikabo 1973
-
-Kompetisi : BRI Liga 1. 
-
-Jam : 15:15 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Persib Bandung vs PSS Sleman
+Persiraja Banda Aceh vs Arema FC
 
 Kompetisi : BRI Liga 1. 
 
 Jam : 18:15 WIB
 
-Link streaming : https://bit.ly/3HClVS 
+Link streaming : https://bit.ly/3HClVS
 
-Borneo vs PSM Makassar
+Chelsea vs Norwich
 
-Kompetisi : BRI Liga 1.
+Kompetisi : Premier League.
+
+Jam : 18:30 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Valencia vs Mallorca
+
+Kompetisi : LaLiga.
+
+Jam : 19:00 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Arminia Bielefeld vs Dortmund
+
+Kompetisi : BundesLiga. 
+
+Jam : 20:30 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Bayern Munich vs Hoffenheim
+
+Kompetisi : BundesLiga. 
+
+Jam : 20:30 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Bali United vs Bhayangkara FC
+
+Kompetisi : BRI Liga 1. 
 
 Jam : 20:45 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Madura United vs Persija Jakarta
-
-Kompetisi : BRI Liga 1.
-
-Jam : 20:45 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Arsenal vs Aston Villa
+Crystal Palace vs Newcastle United
 
 Kompetisi : Premier League. 
+
+Jam : 21:00 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Brighton vs Manchester City
+
+Kompetisi : Premier League. 
+
+Jam : 23:30 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Bologna vs AC Milan
+
+Kompetisi : Serie A. 
+
+Jam : 01:45 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Ath Bilbao vs Villarreal
+
+Kompetisi : LaLiga. 
 
 Jam : 02:00 WIB
 
