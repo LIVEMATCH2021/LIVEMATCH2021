@@ -1,22 +1,6 @@
-Jadwal Pertandingan 23-24 Okt 2021.
+Jadwal Pertandingan 24-25 Okt 2021.
 
-Persiraja Banda Aceh vs Arema FC
-
-Kompetisi : BRI Liga 1. 
-
-Jam : 18:15 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Chelsea vs Norwich
-
-Kompetisi : Premier League.
-
-Jam : 18:30 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Valencia vs Mallorca
+Sevilla vs Levante
 
 Kompetisi : LaLiga.
 
@@ -24,47 +8,47 @@ Jam : 19:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Arminia Bielefeld vs Dortmund
+Brentford vs Leicester
 
-Kompetisi : BundesLiga. 
+Kompetisi : Premier League.
 
-Jam : 20:30 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Bayern Munich vs Hoffenheim
-
-Kompetisi : BundesLiga. 
-
-Jam : 20:30 WIB
+Jam : 20:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Bali United vs Bhayangkara FC
-
-Kompetisi : BRI Liga 1. 
-
-Jam : 20:45 WIB
-
-Link streaming : https://bit.ly/3HClVS
-
-Crystal Palace vs Newcastle United
+West Ham vs Tottenham
 
 Kompetisi : Premier League. 
 
-Jam : 21:00 WIB
+Jam : 20:00 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Brighton vs Manchester City
+Barcelona vs Real Madrid
+
+Kompetisi : LaLiga. 
+
+Jam : 21:15 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Manchester United vs Liverpool
 
 Kompetisi : Premier League. 
 
-Jam : 23:30 WIB
+Jam : 22:30 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Bologna vs AC Milan
+AS Roma vs Napoli
+
+Kompetisi : Serie A.
+
+Jam : 23:00 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Inter vs Juventus
 
 Kompetisi : Serie A. 
 
@@ -72,7 +56,15 @@ Jam : 01:45 WIB
 
 Link streaming : https://bit.ly/3HClVS
 
-Ath Bilbao vs Villarreal
+Marseille vs PSG
+
+Kompetisi : Ligue 1. 
+
+Jam : 01:45 WIB
+
+Link streaming : https://bit.ly/3HClVS
+
+Atl. Madrid vs Real Sociedad
 
 Kompetisi : LaLiga. 
 
